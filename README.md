@@ -1,1 +1,0 @@
-# pesto-pre-curriculum
